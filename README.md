@@ -1,8 +1,4 @@
-# profile
-what are you doing baby
-
-are you serious???
-
-nobody tell me only yourself
-can do it by yourself
+# Welcome to Shawn he's Homepage
+hi, this is shawn
+You can know something about me during this page
 
